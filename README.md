@@ -11,8 +11,6 @@ Let’s break this down step-by-step, explore smart strategies, and understand h
 
 Here’s the golden rule: **Stay cautious and use legitimate sources.** Below are actionable steps to ensure you make a safe purchase while staying under Facebook’s radar.
 
----
-
 ### ### **1. Look for Verified and Aged Facebook Accounts**
 When it comes to Facebook accounts, age matters—just like a fine wine. Why? Because aged accounts are less likely to trigger Facebook’s security systems. Here’s what to look for:
 
